@@ -14,5 +14,11 @@ Dans le cadre de campagnes importantes, la landing page doit normalement faire l
 En savoir plus sur http://www.definitions-marketing.com/definition/landing-page/#QTPrcuEBXLY1kSXe.99
 
 
+15 of the Best Landing Page Design Examples You Need to See
 
 http://blog.hubspot.com/marketing/landing-page-examples-list
+
+
+35 Beautiful Landing Page Design Examples to Drool Over [With Critiques]
+
+http://unbounce.com/landing-page-examples/built-using-unbounce/beautiful-landing-page-design-examples/
