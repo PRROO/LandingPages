@@ -12,3 +12,7 @@ L’optimisation de la landing page est parfois oubliée ou sous estimée dans l
 
 Dans le cadre de campagnes importantes, la landing page doit normalement faire l’objet de tests systématiques. L’optimisation des landing pages est quasiment devenue une discipline à part entière du marketing digital.
 En savoir plus sur http://www.definitions-marketing.com/definition/landing-page/#QTPrcuEBXLY1kSXe.99
+
+
+
+http://blog.hubspot.com/marketing/landing-page-examples-list
