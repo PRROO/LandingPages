@@ -11,7 +11,10 @@ La landing page est un élément très important des campagnes de marketing digi
 L’optimisation de la landing page est parfois oubliée ou sous estimée dans la mise en place de campagnes marketing Internet et cela peut parfois pénaliser lourdement les performances d’une campagne. Le choix et l’optimisation des landing pages sont par exemple des composantes essentielles de campagnes de liens commerciaux.
 
 Dans le cadre de campagnes importantes, la landing page doit normalement faire l’objet de tests systématiques. L’optimisation des landing pages est quasiment devenue une discipline à part entière du marketing digital.
-En savoir plus sur http://www.definitions-marketing.com/definition/landing-page/#QTPrcuEBXLY1kSXe.99
+
+
+En savoir plus sur: 
+http://www.definitions-marketing.com/definition/landing-page/#QTPrcuEBXLY1kSXe.99
 
 
 15 of the Best Landing Page Design Examples You Need to See
@@ -22,3 +25,5 @@ http://blog.hubspot.com/marketing/landing-page-examples-list
 35 Beautiful Landing Page Design Examples to Drool Over [With Critiques]
 
 http://unbounce.com/landing-page-examples/built-using-unbounce/beautiful-landing-page-design-examples/
+
+
